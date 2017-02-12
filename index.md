@@ -36,7 +36,8 @@ The national stadium now is an international football stadium, hosted the 2012 E
 Spyro 3:Year of the Dragon, followed the story of this purple colored dragon named, Spyro. It was developed by Insomniac Games and was the third instalment to the Spyro franchise. I had not played the previous two games, and at the time never realized that the game was a sequel to the other two, it was a gem in iteslf. The objective of the game was to collect different eggs around different worlds, collecting gems and treasures along the way. What made this game so special at the time was it's submime 3D graphics and use of bright colors coupled with an amazing story and characters. Playing Spyro for me, was peaceful and calming. The game was so good, that even my father joined in and played the game, from time to time. </br>
 I think Spyro has and always will have a special place in my heart, because this was one of those games which made me appreciate video games for their storytelling and narrative. And also motivated me to create or build something like Spyro: Year of the Dragon.
 </br>
-
+References: Dan Crawley's article on the Old Stadium and Poland's Gaming Industry. 
+http://venturebeat.com/2014/11/22/the-birth-and-growth-of-the-polish-game-industry/
   <br>
   
   <br>
